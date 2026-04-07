@@ -20,7 +20,7 @@ ${\color{#ECFFFD}\textsf{ 𖹭 }}$ [𝕄ai𝐧](https://github.com/manepaws)ㅤ�
 
 ${\color{#434D68}\textsf{︶ ︶}}$ ㅤㅤ*f*oll**o**wㅤ ${\color{#323745}\textsf{𔓕}}$ ㅤ*t*h**e**m *!* ㅤㅤ𓏼˚̣̣̣*𐂯*
 
-[𝕨ifiesss](https://github.com/wifiesss)ㅤ ۫ ׅ ㅤ[𝔸ngst𝔾od](https://github.com/AngstGod) ゛ㅤㅤ⌣ㅤ***♡***ྀི ₊ㅤㅤ[𝕊quiddx](https://github.com/squiddx) 
+[𝕨ifiesss](https://github.com/wifiesss)ㅤ ۫ ׅ ㅤ[𝕕ol9hin𝕤tate](https://github.com/Dol9hinState) ゛ㅤㅤ⌣ㅤ***♡***ྀི ₊ㅤㅤ[𝕊quiddx](https://github.com/squiddx) 
 
 ${\color{#323745}\textsf{ old layout of my main}}$ ♡ 
 

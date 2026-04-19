@@ -6,6 +6,6 @@
 <img src="https://u.cubeupload.com/Dagasi/G9WtxPTaAAAvqgu.png" width="520">
 
 ㅤ
-**spam** followerㅤㅤㅤㅤ8*w*4
+**spam** followerㅤㅤㅤㅤ8*w*7
 
-atabookㅤ.ㅤ[🕊](https://fly.atabook.org)ㅤㅤㅤㅤㅤㅤㅤㅤmain accountㅤ.ㅤ[🪦](https://github.com/5poke) 
+atabookㅤ.ㅤ[🕊](https://wfs.atabook.org)ㅤㅤㅤㅤㅤㅤㅤㅤmain accountㅤ.ㅤ[🪦](https://github.com/5poke) 
